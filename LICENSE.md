@@ -1,4 +1,4 @@
-# 
+# VIP sushiswap trading bot templates for Mac OS | Elite sushiswap trading bot templates for PC Windows. Featuring dex liquidity pools and mean reversion strategy — optimized for maximum performance.
 
 
 
